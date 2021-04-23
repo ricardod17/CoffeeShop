@@ -4,6 +4,6 @@ All rights reserved. No part of this publication may be reproduced, distributed,
 
 We will take legal action against you.
 
-Karya ini dilindungi oleh hak cipta. Tidak ada bagian manapun dari publikasi ini diperbolehkan untuk dibuat ulang, didistribusikan, dipindahkan dalam bentuk atau media apapun, termasuk fotokopi, rekaman, ataupun cara elektronik atau mekanik lainnya, tanpa ijin tertulis sebelumnya dari pihak pemilik (Dalam kasus ini Apeiron, kecuali dalam kasus kutipan singkat yang digunakan untuk tinjauan kritis dan penggunaan non-komersil yang diijinkan oleh hukum hak karya cipta.
+Karya ini dilindungi oleh hak cipta. Tidak ada bagian manapun dari publikasi ini diperbolehkan untuk dibuat ulang, didistribusikan, dipindahkan dalam bentuk atau media apapun, termasuk fotokopi, rekaman, ataupun cara elektronik atau mekanik lainnya, tanpa ijin tertulis sebelumnya dari pihak pemilik (Dalam kasus ini Rush Coffee, kecuali dalam kasus kutipan singkat yang digunakan untuk tinjauan kritis dan penggunaan non-komersil yang diijinkan oleh hukum hak karya cipta.
 
 Kami akan menindak melalui jalur hukum.
